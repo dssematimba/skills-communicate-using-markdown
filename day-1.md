@@ -1,4 +1,4 @@
-# Daily Learning
+# Daily learning
 
 ## Morning Planning
 
